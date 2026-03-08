@@ -15,6 +15,7 @@
 - Lat Pulldowns – 3 x 10
 - Dumbbell Curls – 3 x 12
 - Tricep Pushdowns – 3 x 12
+- face pulls - 3 x 15
 
 ## Notes
 Focus on progressive overload and controlled tempo.
