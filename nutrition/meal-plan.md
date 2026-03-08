@@ -1,7 +1,7 @@
 # Nutrition Plan
 
 ## Daily Calorie Target
-3,200 calories
+3,100 calories
 
 ## Protein Goal
 200–220 grams per day
