@@ -19,5 +19,5 @@ Completed all 4 rounds.
 Sprints felt slower in final round.
 
 ## Weekly Reflection
-Good first week overall.
+TERRIBLE first week overall.
 Need to improve conditioning endurance.
