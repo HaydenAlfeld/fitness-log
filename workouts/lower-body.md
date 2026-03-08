@@ -1,7 +1,7 @@
 # Lower Body Workout Plan
 
 ## Warm-Up
-- 5 minutes bike ride x2
+- 5 minutes bike ride
 - Hip mobility drills
 - Bodyweight squats (2 x 15)
 
