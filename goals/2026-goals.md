@@ -2,7 +2,7 @@
 
 ## Strength Goals
 - Bench Press: 275 lbs
-- Squat: 365 lbs
+- Squat: 405 lbs
 - Deadlift: 405 lbs
 - Overhead Press: 185 lbs
 

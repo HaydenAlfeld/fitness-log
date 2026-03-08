@@ -8,7 +8,7 @@ Barbell Row: 185 x 6
 Strength improving steadily.
 
 ## Wednesday – Lower Body
-Squat: 315 x 5 (4 sets)
+Squat: 325 x 5 (4 sets)
 RDL: 235 x 8
 Calf Raises: 4 x 15
 
